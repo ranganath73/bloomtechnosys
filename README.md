@@ -1,3 +1,3 @@
 # bloomtechnosys
 
-# Here my student's Toddler projects will be there
+# Here are my student's Toddler projects.
